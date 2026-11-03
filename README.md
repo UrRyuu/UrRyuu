@@ -1,5 +1,5 @@
 # 💫 About Me:
-Im currently work at Pondok Pesantren AL FURQON AL ISLAMI GRESIK as a Software Engineer<br>and im currently studying at Politeknik IDN Bogor as a TRPL Student <br>why i choose a programmer as my major because im so love coding soooo much it feels like a hacker LOL 😁<br>oh yeah i forgot,im born in Depok city wich is at West Java  and im grew up in North Jakarta<br>so that's it my short profile about me 
+Im currently studying at Politeknik IDN Bogor as a TRPL Student <br>why i choose a programmer as my major because im so love coding soooo much it feels like a hacker LOL 😁<br>oh yeah i forgot,im born in Depok city wich is at West Java  and im grew up in North Jakarta<br>so that's it my short profile about me 
 
 
 ## 🌐 Socials:
